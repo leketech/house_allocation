@@ -1,0 +1,1 @@
+we rent out houses
